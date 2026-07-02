@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Likitha Lankalapalli
+# 👋 Hi, I'm Leela Naga sai Likitha Lankalapalli
 
 🎓 Third-Year B.Tech Student at Vignan Institute of Technology
 
